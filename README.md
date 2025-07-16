@@ -38,7 +38,7 @@ If you have ideas, corrections, or suggestions for algorithms to add, feel free 
 
 ## Contact
 
-LinkedIn: [https://www.linkedin.com/in/ashmitapandey](https://www.linkedin.com/in/ashmitapandey)  
+LinkedIn: [https://www.linkedin.com/in/ashmitapandey](https://www.linkedin.com/in/ashmitapandey47)  
 Email: [ashmitapandey47@gmail.com](ashmitapandey47@gmail.com)
 
 ---
